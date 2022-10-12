@@ -15,8 +15,7 @@
 ![voice of electronics](https://user-images.githubusercontent.com/96968334/195257844-f01a9038-40d5-4f7b-aef3-2daa1d68d1c5.png)
 ![cricutrix](https://user-images.githubusercontent.com/96968334/195258229-11a85bd9-eb89-47cf-b515-493c3404c2d5.png)
 ![DEBATE](https://user-images.githubusercontent.com/96968334/195259174-7461fc47-8513-4bbb-809a-a800867f4a5a.jpg)
-![Extempore](https![Uploading Idea Brainstorming.png…]()
-://user-images.githubusercontent.com/96968334/195259195-4e5f0976-e3cd-4c43-813e-0faed52169a1.jpg)
+![Extempore](https://user-images.githubusercontent.com/96968334/195259195-4e5f0976-e3cd-4c43-813e-0faed52169a1.jpg)
 ![QUIZ (1)](https://user-images.githubusercontent.com/96968334/195259221-c5d42085-c630-41e0-88e5-58e7068a5bf3.jpg)
 
 
