@@ -23,3 +23,8 @@
 ![Project Pradarshan](https://user-images.githubusercontent.com/96968334/195261430-73b46350-efa1-46ef-8431-2fcca1178d9f.png)
 ![Turn Screw](https://user-images.githubusercontent.com/96968334/195261440-6882cb58-1388-4954-ac2d-a4e5e19f38f7.png)
 
+
+![photo_2022-10-16_18-40-55](https://user-images.githubusercontent.com/96968334/196184853-21555986-75fe-45e7-beb7-81eefd75acde.jpg)
+
+
+
